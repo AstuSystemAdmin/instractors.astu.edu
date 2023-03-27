@@ -1,3 +1,1 @@
-# instractors.astu.edu
-# instractors.astu.edu
-# instractors.astu.edu
+# who cares
